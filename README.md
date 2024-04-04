@@ -6,10 +6,7 @@
 ![cw_carpack](https://github.com/iplayer1337fivem/cwracingpack/assets/69944020/1e745a85-fc42-4330-9950-ac04fc9e013e)
 ![coffeelot_flatbed](https://github.com/iplayer1337fivem/cwracingpack/assets/69944020/6d46d323-7ea4-4287-a524-32ccd5af0fb8)
 
-
-
-https://github.com/iplayer1337fivem/cwracingpack/assets/69944020/d53ac40e-af2b-422d-8136-50036d667479
-
+https://github.com/iplayer1337fivem/cwracingpack/assets/69944020/740cbe6e-4b0b-4e62-8894-9f1a93d48a74
 
 **CW SCRIPT RACING PACK README**
 
@@ -83,3 +80,8 @@ Discountcode: Best in FIVEM!!!
 : "YSeries-x-Rtberger"   If you use this code to buy Yseries, youget it cheaper, and I will throw in a Nitroboost for your wish
 [https://fivem.social/@rottenberger](https://fivem.social/@rottenberger)
 [https://discord.com/invite/advancedroleplay](https://discord.com/invite/advancedroleplay)
+
+
+![EUP_CW_SHOWCASE_GIFFY-](https://github.com/iplayer1337fivem/cwracingpack/assets/69944020/a1ac7c8b-f7a1-4716-b1fd-25a9523e0954)
+
+
