@@ -68,8 +68,12 @@ Thank you for choosing the CW Script Racing Pack – let the races begin! 🏁
 
 For any inquiries, support, or feedback regarding the CW Script Racing Pack, feel free to reach out to us via:
 
+CW: SCRIPTS - Show them some love <3
 Discord: [CW SCRIPTS DISCORD](https://discord.gg/FJY4mtjaKr)
+How to get FREE PREMIUM SCRIPTS (FREE)
 GITHUB: [CW SCRIPTS](https://github.com/Coffeelot)
+
+How to save a EUP PACKAGE: (FREE)
 Github: [GRZYCLOTHTOOL](https://github.com/grzybeek/grzyClothTool)
 
 
