@@ -78,8 +78,10 @@ Im accessible on discord rottenberger / find me at :
 Discountcode: Best in FIVEM!!!
  Y-series -TeamsGG:
 : "YSeries-x-Rtberger"   If you use this code to buy Yseries, youget it cheaper, and I will throw in a Nitroboost for your wish
-[https://fivem.social/@rottenberger](https://fivem.social/@rottenberger)
-[https://discord.com/invite/advancedroleplay](https://discord.com/invite/advancedroleplay)
+
+My fivem.social account - [https://fivem.social/@rottenberger](https://fivem.social/@rottenberger)
+
+My roleplayserver - [https://discord.com/invite/advancedroleplay](https://discord.com/invite/advancedroleplay)
 
 
 ![EUP_CW_SHOWCASE_GIFFY-](https://github.com/iplayer1337fivem/cwracingpack/assets/69944020/a1ac7c8b-f7a1-4716-b1fd-25a9523e0954)
